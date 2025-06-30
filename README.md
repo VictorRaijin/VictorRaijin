@@ -1,7 +1,5 @@
 # 👋 Hi, I'm Victor
 
-![Dev Coding](https://github.com/VictorRaijin/README/blob/main/dev%20code.gif?raw=true)
-
 **Sr. Software Engineer | GCP Apps & AI-Driven Backends**
 
 ---
