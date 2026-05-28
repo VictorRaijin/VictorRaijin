@@ -1,3 +1,5 @@
-# 👋 Hi, I'm Victor
+# 👋 Hey. Segun
 
-Nice to meet you
+Please contact me right now
+I will wait your msg
+email: butterfly800530@gmail.com
